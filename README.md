@@ -29,7 +29,7 @@ ______________________________________
 7. Амстердам
 
 
-### ***What I actually can in this life?***
+### ***What can I actually do in this life?***
 
 
 * Немного петь
