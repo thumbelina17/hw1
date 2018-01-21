@@ -45,7 +45,7 @@ _____________________________________________
 
 
 
-![А вот и я:](https://vk.com/shokoladkavladunz?z=photo71420192_456247879%2Fphotos71420192)
+!(https://vk.com/shokoladkavladunz?z=photo71420192_456247879%2Fphotos71420192)
 
 
 
