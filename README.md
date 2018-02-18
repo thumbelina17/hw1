@@ -42,7 +42,6 @@ _____________________________________________
 * [VK](https://vk.com/shokoladkavladunz)
 
 
-
 ![А вот и я:](https://pp.userapi.com/c830408/v830408548/e6c2/gnOWJx09MNg.jpg)
 
 
